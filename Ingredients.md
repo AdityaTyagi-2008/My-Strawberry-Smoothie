@@ -1,0 +1,1 @@
+Ingredients are -> 1/2 cup skim MILK , Max 8 Strawberries and Min 4 Strawberries , 1/2 cup plain YOGURT , 3 table spoon SUGAR , 2 teaspoon (or 1 tablespoon) VANILLA EXTRACT , 2 crushed ICE CUBES and optional ALMONDS.
